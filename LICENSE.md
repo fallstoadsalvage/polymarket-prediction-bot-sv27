@@ -1,4 +1,4 @@
-# 
+# Polymarket instant Strategy: risk-management & prediction-market-scanning is the best Polymarket strategy, featuring risk-management and prediction-market-scanning. Smart, fast,
 
 
 
